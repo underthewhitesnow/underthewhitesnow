@@ -8,4 +8,4 @@ I want to hug you Mari
     <p align="left">
 Your personality is amazing
       <p align="left">
-Mari I want to see you succeed <img width="100" height="100" alt="melty-harumaki-gohan" src="https://github.com/user-attachments/assets/27a479df-a170-4c2f-b76e-93e67f86902f" />
+Mari I want to see you succeed <img width="40" height="40" alt="melty-harumaki-gohan" src="https://github.com/user-attachments/assets/27a479df-a170-4c2f-b76e-93e67f86902f" />
