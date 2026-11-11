@@ -1,3 +1,11 @@
-<img width="374" height="210" alt="zero-talking-vocaloid-kiss" src="https://github.com/user-attachments/assets/1fd81747-fd53-4746-a9b7-22d3bb536e76" />
-WIP!!
-I'm still trying to figure how this site works
+<img width="596" height="335" alt="images" src="https://github.com/user-attachments/assets/ac530220-9013-47c5-90d4-1d48a93e32e8" />
+
+
+<p align="left">
+I really love you Mari
+  <p align="left">
+I want to hug you Mari
+    <p align="left">
+Your personality is amazing
+      <p align="left">
+Mari I want to see you succeed <img width="100" height="100" alt="melty-harumaki-gohan" src="https://github.com/user-attachments/assets/27a479df-a170-4c2f-b76e-93e67f86902f" />
